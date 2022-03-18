@@ -6,6 +6,5 @@
 - 🤔 I’m looking for help with ... Bug Tracker Project  
 - 💬 Ask me about ... My Experience
 - 📫 How to reach me: ... abrahamderese98@gmail.com
-- 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ... I like animating!
 
